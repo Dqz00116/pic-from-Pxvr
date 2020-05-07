@@ -1,2 +1,10 @@
 # pic-from-Pxvr
-Some selected illustrations from the P station
+本仓库整合了一部分来自P站的全年龄向插画
+
+上传请**注明图片ID以及画师ID**
+
+#### **禁止上传具有等级限制的插画、漫画以及动图！！！！**
+
+最后，重要的事情说三遍：
+
+### 侵删！侵删！侵删！
